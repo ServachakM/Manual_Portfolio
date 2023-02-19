@@ -1,6 +1,6 @@
 # Manual_Portfolio
 
-## I have created: 
+## I have created (examples of my work): 
 
 ### Checklists
 
